@@ -1,1 +1,17 @@
-# DE-24-6
+SylviaPrince589@icloud.com
+ArielValdez489@icloud.com
+JadaGalindo534@icloud.com
+LydiaPalacio479@icloud.com
+HanaGordon567@icloud.com
+LuccaLandry246@icloud.com
+JoyceReese677@icloud.com
+FridaHurley120@icloud.com
+AndyNava568@icloud.com
+KinleyClay478@icloud.com
+DevonOwen124@icloud.com
+JamieOrozco598@icloud.com
+RomanHurst467@icloud.com
+DorianHuerta597@icloud.com
+DaisyMorton568@icloud.com
+IvoryJohnson267@icloud.com
+JakeGoodman694@icloud.com
